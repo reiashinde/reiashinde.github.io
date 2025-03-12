@@ -11,7 +11,7 @@
 ## Contact
  
  [Phone](+33 0678920279)
- [Email](reia.shinde@gmail.com)
+ [Email](mailto:reia.shinde@gmail.com)
  [Linkedin](https://www.linkedin.com/in/reia-shinde)
 
 ## Work Experience
