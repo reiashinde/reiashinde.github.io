@@ -48,6 +48,7 @@ Nov 2022 – Apr 2023
 - Ranked among the top 1% in L’Oréal Brandstorm 2024 with the
  innovative “Glam Elixir” concept, showcasing exceptional creativity
  and strategic market insights.
+
 ###  Teaching Volunteer | U&I | Mumbai, India   June 2020 – June 2021
 - Tutored 12 underprivileged kids in English, Math, and Holistic
  Development at a shelter home in Mumbai.
