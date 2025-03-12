@@ -8,14 +8,14 @@
  delivering measurable growth. Seeking a full-time marketing or brand
  management roles starting March 2025 to contribute to impactful and
  innovative brand initiatives.
+## Contact
  
- ## Contact
  [Phone](+33 0678920279)
  [Email](reia.shinde@gmail.com)
  [Linkedin](https://www.linkedin.com/in/reia-shinde)
- 
- ## Work Experience
- ### Marketing, Communications and Sales Intern @ EDHEC FIT Chair  – Lille, France 
+
+## Work Experience
+### Marketing, Communications and Sales Intern @ EDHEC FIT Chair  – Lille, France 
  Oct 2024 - Present
 -  Collaborated with the World Economic Forum to design 5+ Future
  Fitness Reports, shaping innovation across 10+ industries.
