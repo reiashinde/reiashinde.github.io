@@ -63,9 +63,10 @@ Nov 2022 – Apr 2023
 - Google Ads -  Canva - UI/UX
   
 ## Education
-###  EDHEC BUSINESS SCHOOL, FRANCE (GRANDE ECOLE)  2023-2024
+### EDHEC Business School, France (Grande Ecole)  2023-2024
 - MSc Marketing Management (Luxury and Fashion)
-###    NARSEE MONJEE INSTITUTE OF MANAGEMENT STUDIES, NAVI MUMBAI, INDIA  2019-2022
+
+### Narsee Monjee Institute of Management Studies, Navi Mumbai, India  2019-2022
 - Bachelor of Business Administration
 
 ## Languages
